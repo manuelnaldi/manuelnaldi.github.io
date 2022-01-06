@@ -1,2 +1,2 @@
 https://manuelnaldi.it/
-Manuel Naldi Personal Site
+: Manuel Naldi Personal Site
